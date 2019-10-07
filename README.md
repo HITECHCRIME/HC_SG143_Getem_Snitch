@@ -57,7 +57,7 @@ trick is not to care about a diss
 get in tha niche
 don't change your pitch
 switch'em up (before) yaaaaa
-toggle the switch
+toggle the switch (OFF)
 no twitch zone approaching
 blessed by a witch
 bewitched in trance coz
