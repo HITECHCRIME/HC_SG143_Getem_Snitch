@@ -36,28 +36,29 @@ get'em snitch
 
 get'em snitch
 
-get'em snitch
-get'em snitch
-get'em snitch
+get'em sniiitch
+get'em sniiitch
+get'em sniiitch
 get'em snitch
 get'em snitch
 get'em snitch yaaaa
 
 SNITCH
-prude bitch brood bitch (brood bits)
+prude bits brood bitch
 suppress the flinch
 such a glitch itch
+the f the flinch
+such a glitch itch
+in your ditch bitch
 
-
-brood bitch brood bitch
-suppress the flinch
-such a glitch
+the f the flinch
+such a glitch itch
+in your ditch bitch
 
 trick is not to care about a diss
 get in tha niche
 don't change your pitch
-switch'em up (before) yaaaaa
-toggle the switch (OFF)
+switch'em up before you took the switch OFF
 no twitch zone approaching
 blessed by a witch
 bewitched in trance coz
