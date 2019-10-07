@@ -58,13 +58,16 @@ in your ditch bitch
 trick is not to care about the dead
 get in tha niche
 don't teach your pits
-switch'em up 
+i changed them y'all 
 
 before you took the switch OFF
 
 mid-zone approaching
 blessed by a witch
 bewitched in trance coz
+switch'em up
+
+
 your chain got a chain to stitch
 
 perfect miss
