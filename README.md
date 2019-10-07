@@ -60,21 +60,13 @@ get in tha niche don't twitch your pits
 i changed them y'all before you took the switch OFF
 mid-zone approaching, blessed by 
 a witch, bewitched in trance aye (entranced aye)
-(bait and switch)
-switch'em up
-
-
+(bait and switch) switch'em up
 your chain got a chain to stitch
+perfect miss, such a perfect miss ya
 
-perfect miss
-such a perfect miss ya
-
-betting
-abetting
-so fitting
-retros in fit/ting
-
-inclusives
+betting abetting
+so fitting retros in fit/ting
+inclusive
 netting results 
 from conscious forgetting
 
