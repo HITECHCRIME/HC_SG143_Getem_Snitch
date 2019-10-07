@@ -44,9 +44,10 @@ get'em snitch
 get'em snitch yaaaa
 
 SNITCH
-brood bitch brood bitch
+prude bitch brood bitch
 suppress the flinch
 such a glitch itch
+
 
 brood bitch brood bitch
 suppress the flinch
