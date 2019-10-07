@@ -39,49 +39,47 @@ get'em snitch
 get'em sniiitch
 get'em sniiitch
 get'em sniiitch
-get'em snitch
-get'em snitch
-get'em snitch yaaaa
+get'em sniiitch
+get'em sniiitch
+get'em sniiitch yaaaa
 
-SNITCH
 prude bits brood bitch
 suppress the flinch
 such a glitch itch
+x
+the f the flinch
+such a glitch itch
+in your ditch bitch
+x
 the f the flinch
 such a glitch itch
 in your ditch bitch
 
-the f the flinch
-such a glitch itch
-in your ditch bitch
-
-trick is not to care about a diss
+trick is not to care about the dead
 get in tha niche
-don't change your pitch
-switch'em up before you took the switch OFF
-no twitch zone approaching
+don't teach your pits
+switch'em up 
+
+before you took the switch OFF
+
+mid-zone approaching
 blessed by a witch
 bewitched in trance coz
 your chain got a chain to stitch
-enrich
+
 perfect miss
-bridge
-ridge
-get
-rich
-bitch
+such a perfect miss ya
 
-hitch
-itch
-
-GET'EM
 betting
 abetting
 so fitting
 retros in fit/ting
+
 inclusives
 netting results 
 from conscious forgetting
+
+xxxxx
 
 vetting
 transmitting  
@@ -91,6 +89,16 @@ offsetting
 
 committing
 counterfeit bling
+
+
+bridge
+ridge
+get
+rich
+bitch
+
+hitch
+itch
 
 let'em
 set  them
