@@ -13,7 +13,7 @@ autotune-like song? maybe not
 
 **Title:** Get'em Snitch / **Featuring:** MOTHNODE
 
-**Production:** Satsu x MOTHNODE / **Lyrics:**
+**Production:** Satsu x MOTHNODE / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
