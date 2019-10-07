@@ -122,3 +122,10 @@ perplex them
 ## Notes
 
 ## Music Video
+
+Get'em Snitch - chase/tracking drone
+brood bits brood bitch - target, broodmother
+perfect miss ya
+forgetting -  wiping footage memory
+
+aliens vibe  -  broodmother
