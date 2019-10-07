@@ -6,7 +6,7 @@
 
 ## Satsu x MOTHNODE EP
 
-**Listen now:** 
+**Listen now:** x
 
 ## Project Data
 
