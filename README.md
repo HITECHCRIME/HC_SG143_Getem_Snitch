@@ -82,11 +82,14 @@ netting results
 from conscious forgetting
 
 vetting
-transmitting
+transmitting  
+
 reseting
 offsetting
+
 committing
 counterfeit bling
+
 let'em
 set  them
 beget them
