@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Get'em Snitch (Satsu EP) 
 
-- Solo Song
+- Solo Song.
 
 ## Satsu x MOTHNODE EP
 
