@@ -22,7 +22,6 @@ autotune-like song? maybe not
 ## Lyrics
 
 ```
-
 get'em snitch
 get'em snitch
 get'em snitch
