@@ -11,9 +11,9 @@ Beat: https://www.youtube.com/watch?v=h-0CrfyHt4Q
 
 autotune-like song? maybe not
 
-**Title:** Get'em Snitch / **Featuring:** 
+**Title:** Get'em Snitch / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** Satsu x MOTHNODE / **Lyrics:**
 
 ## Lyrics
 
