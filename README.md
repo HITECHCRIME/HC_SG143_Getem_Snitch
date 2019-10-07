@@ -1,6 +1,8 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Get'em Snitch (Satsu EP) - Solo Song
+# MOTHNODE_ Get'em Snitch (Satsu EP) 
+
+- Solo Song
 ## Satsu x MOTHNODE EP
 
 **Listen now:** 
