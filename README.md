@@ -76,10 +76,9 @@ itch
 GET'EM
 betting
 abetting
-
 so fitting
-retrofitting
-
+retros in fit/ting
+inclusives
 netting results 
 from conscious forgetting
 
