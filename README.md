@@ -142,6 +142,8 @@ forgetting -  wiping footage memory
 
 Geiger's Aliens vibe - THE BROOD
 
+---
+
 /// MOTHNODE_ Get'em Snitch [Prototype from Satsu Collab EP]
 
 Current idea flow is purely base layer (base layers have direct meaning while top layer ideas are abstract) and ties a bit into Geiger's Alien vibes:
@@ -150,3 +152,19 @@ Current idea flow is purely base layer (base layers have direct meaning while to
 - "Glitch itch" - lots of static in footage. 
 - "Perfect miss" - entity evaded the hunt 
 - "forgetting" - wiping footage from memory
+
+---
+
+/// WEYLAND-YUTANI INSPIRATION LINK ACTIVE_
+/// MOTHNODE_ Get'em Snitch [Prototype from Satsu Collab EP]
+/// Hitech Crime x 殺害Satsugaix666x
+/// NODE STEMS_ #cyberpunk #aliensuniverse #hitech
+
+Quick prototype from an upcoming EP collaboration with 殺害Satsugaix666x. Mix of dark trap music and Alien Universe theme.
+
+Music video in conceptual works. Current idea flow is purely base layer (base layers have direct meaning while top layer ideas are abstract) and ties into Geiger's vibes:
+- "Snitch" is a chase/tracking drone.
+- "Brood bits, brood bi**h" is the Alien's very own broodmother, which is the target in the music video.
+- "Glitch itch" - lots of static in footage.
+- "Perfect miss" - entity evaded the hunt
+- "conscious forgetting" - wiping footage from memory
