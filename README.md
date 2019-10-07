@@ -56,8 +56,7 @@ such a glitch itch
 in your ditch bitch
 
 trick is not to care about the dead
-get in tha niche
-don't teach (twitch) your pits
+get in tha niche don't twitch your pits
 i changed them y'all 
 before you took the switch OFF
 
