@@ -23,6 +23,51 @@ get'em snitch
 get'em snitch
 get'em snitch
 
+SNITCH
+rich
+bitch
+brood bitch
+flinch
+glitch
+hitch
+itch
+niche
+pitch
+switch
+toggle switch
+twitch
+witch
+bewitch
+chain stitch
+enrich
+perfect miss
+bridge
+ridge
+get
+
+GET'EM
+betting
+abetting
+so fitting
+retrofitting
+
+netting results 
+from conscious forgetting
+
+vetting
+transmitting
+reseting
+offsetting
+committing
+counterfeit bling
+let'em
+set  them
+beget them
+spread them
+affect them
+test them
+suppress them
+
 ```
 
 ## Lyrics Testing Ground
