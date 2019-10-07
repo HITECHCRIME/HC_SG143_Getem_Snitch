@@ -14,7 +14,7 @@ Beat: https://www.youtube.com/watch?v=h-0CrfyHt4Q
 
 new  one https://www.youtube.com/watch?v=zJLcKRKCXhw
 
-autotune-like song? maybe not
+autotune-like song? maybe not.nope.
 
 **Title:** Get'em Snitch / **Featuring:** MOTHNODE
 
