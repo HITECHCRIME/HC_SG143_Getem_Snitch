@@ -59,12 +59,11 @@ trick is not to care about the dead
 get in tha niche
 don't teach your pits
 i changed them y'all 
-
 before you took the switch OFF
 
 mid-zone approaching
 blessed by a witch
-bewitched in trance coz
+bewitched in trance coz (entranced)
 switch'em up
 
 
