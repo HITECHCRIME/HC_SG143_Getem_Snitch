@@ -24,26 +24,27 @@ get'em snitch
 get'em snitch
 
 SNITCH
-rich
-bitch
-brood bitch
-flinch
-glitch
+brood bitch brood bitch
+suppress the flinch
+such a glitch
 hitch
 itch
-niche
-pitch
-switch
-toggle switch
-twitch
-witch
-bewitch
-chain stitch
+trick is not to care about a diss
+get in tha niche
+don't change your pitch
+switch'em up (before) yaaaaa
+toggle the switch
+no twitch zone approaching
+blessed by a witch
+bewitched in trance coz
+your chain got a chain stitch
 enrich
 perfect miss
 bridge
 ridge
 get
+rich
+bitch
 
 GET'EM
 betting
