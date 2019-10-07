@@ -141,3 +141,12 @@ perfect miss - evaded the hunt
 forgetting -  wiping footage memory
 
 Geiger's Aliens vibe - THE BROOD
+
+/// MOTHNODE_ Get'em Snitch [Prototype from Satsu Collab EP]
+
+Current idea flow is purely base layer (base layers have direct meaning while top layer ideas are abstract) and ties a bit into Geiger's Alien vibes:
+- "Snitch" is a chase/tracking drone.
+- "Brood bits, brood bi**h" is the Alien's very own broodmother, which is the target in the music video. 
+- "Glitch itch" - lots of static in footage. 
+- "Perfect miss" - entity evaded the hunt 
+- "forgetting" - wiping footage from memory
