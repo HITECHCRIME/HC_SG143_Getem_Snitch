@@ -63,7 +63,7 @@ before you took the switch OFF
 
 mid-zone approaching
 blessed by a witch
-bewitched in trance coz (entranced) aye
+bewitched in trance (entranced aye)
 (bait and switch)
 switch'em up
 
