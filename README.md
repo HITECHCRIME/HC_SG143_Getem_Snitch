@@ -67,6 +67,9 @@ spread them
 affect them
 test them
 suppress them
+oppress them
+detest them
+perplex them
 
 ```
 
