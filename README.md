@@ -125,7 +125,8 @@ perplex them
 
 Get'em Snitch - chase/tracking drone
 brood bits brood bitch - target, broodmother
-perfect miss ya
+glitch itch - lots of static in footage
+perfect miss - evaded the hunt
 forgetting -  wiping footage memory
 
-aliens vibe  -  broodmother
+Geiger's Aliens vibe - THE BROOD
