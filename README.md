@@ -52,9 +52,6 @@ brood bitch brood bitch
 suppress the flinch
 such a glitch
 
-
-hitch
-itch
 trick is not to care about a diss
 get in tha niche
 don't change your pitch
@@ -63,7 +60,7 @@ toggle the switch
 no twitch zone approaching
 blessed by a witch
 bewitched in trance coz
-your chain got a chain stitch
+your chain got a chain to stitch
 enrich
 perfect miss
 bridge
@@ -71,6 +68,9 @@ ridge
 get
 rich
 bitch
+
+hitch
+itch
 
 GET'EM
 betting
