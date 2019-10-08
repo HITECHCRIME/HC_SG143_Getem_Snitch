@@ -66,7 +66,7 @@ perfect miss, such a perfect miss ya
 
 betting abetting
 so fitting retros in fit/ting
-inclusive
+to (inclusive)
 netting results 
 from conscious forgetting
 
