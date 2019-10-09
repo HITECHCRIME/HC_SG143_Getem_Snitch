@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Get'em Snitch (Satsu EP) 
 
-- Solo Song.
+"Sounds kinda like frogs, that's cool, in Colombia we use the word sapo (frog) for snitch."
 
 ## Satsu x MOTHNODE EP
 
