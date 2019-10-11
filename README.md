@@ -50,11 +50,11 @@ prude bits brood bitch
 suppress the flinch
 such a glitch itch
 x
-the f the flinch
+the f* the flinch
 such a glitch itch
 in your ditch bitch
 x
-the f the flinch
+the f* the flinch
 such a glitch itch
 in your ditch bitch
 
