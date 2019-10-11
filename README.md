@@ -4,6 +4,8 @@
 
 "Sounds kinda like frogs, that's cool, in Colombia we use the word sapo (frog) for snitch."
 
+Fun fact: the frog-like EQ voice relates to Colombian slang word "sapo" which means... a snitch.
+
 ## Satsu x MOTHNODE EP
 
 **Listen now:** x
