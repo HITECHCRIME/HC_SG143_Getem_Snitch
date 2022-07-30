@@ -162,3 +162,33 @@ Music video in conceptual works. Current idea flow is purely base layer (base la
 - "Glitch itch" - lots of static in footage.
 - "Perfect miss" - entity evaded the hunt
 - "conscious forgetting" - wiping footage from memory
+
+get'em sniiitch
+get'em sniiitch
+get'em sniiitch yaaaa
+prude bits brood bitch
+suppress the flinch
+such a glitch itch
+
+the f* the flinch
+such a glitch itch
+in your ditch bitch
+
+the f* the flinch
+such a glitch itch
+in your ditch bitch
+
+trick is not to care about the dead
+get in tha niche don't twitch your pits
+i changed them y'all 
+before you took the switch off
+mid-zone approaching, blessed by 
+a witch, bewitched in trance aye
+switch'em up your chain got a chain 
+to stitch perfect miss, such a perfect miss ya
+
+betting abetting
+so fitting retros in fitting
+to netting results 
+from conscious forgetting
+
